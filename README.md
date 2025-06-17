@@ -1,5 +1,7 @@
 ![image](b45964f3c7481d434db05965bc5a9944.jpg) 𐔌 𓏵 𐦯 ,,,, . . . 沈める街 !
 
-𐔌︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ 𐦯 𐂯 ◞◞
+𐔌︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ 𐦯 𐂯◞◞◞◞
 
-![Discord](https://lanyard.cnrad.dev/api/1278702670546210920)
+[discord](underthehorizon.) 𐔌 𓏵 –𐦯 ◞◞
+
+
