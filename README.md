@@ -2,6 +2,6 @@
 
 𐔌︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ 𐦯 𐂯◞◞◞◞
 
-[discord](underthehorizon.) 𐔌 𓏵 –𐦯 ◞◞
+discord: underthehorizon.𐔌 𓏵 –𐦯 ◞◞
 
 
