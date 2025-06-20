@@ -4,7 +4,7 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/2578/2578117bdjgc3e6tj.gif" width=666 height=265 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
+![image](efa40584740efc7524a3db47217304b6.jpg)
 
 <p align=center
 
@@ -16,7 +16,7 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>𐔌⠀ ⠀⠀⠀⠀⠀𐂯 ,, multifandom , multishipper  𐦯◞⠀ ⠀⠀✦.⠀⠀⠀ 𓏵  ..<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>
+<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>𐔌⠀ ⠀⠀⠀⠀⠀𐂯 ,, I'm sorry, about everything i have done to the people who i have hurt without knowing so myself. this is ur chance to hurt me back. 𐦯◞⠀ ⠀⠀✦.⠀⠀⠀ 𓏵  ..<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>
 
 <p align=center
 
