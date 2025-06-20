@@ -1,20 +1,12 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=𐔌𐂯◞◞𐦯&color=ffffff)
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=𐔌𐂯◞◞𐦯&color=ff0000)
 
 <p align=center
 
-![image](77cd09ec08ac488163c61e1857680498.jpg) 
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/2578/2578117bdjgc3e6tj.gif" width=666 height=265 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
-
+<a href="https://www.glitter-graphics.com"><img src="http://dl5.glitter-graphics.net/pub/184/184475y66x8elc3k.gif" width=532 height=24 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <p align=center
-
-discord: silentthonorr_ 𐔌 𓏵 –𐦯 ◞◞
-
-<p align=center
-
-![Alt text](3e74571bb11aa7c13a38076291436196.gif)
-
