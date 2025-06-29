@@ -1,5 +1,9 @@
 <p align=center
 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Monospace+text&duration=1000&color=CC0000&center=true&vCenter=true&width=435&lines=NICE%2C+NICE;SO+ARE+YOU+A;VIRGIN%3F;NICE%2C+NICE;WHAT+COLOR+ARE+YOUR+PANTIES%3F!" alt="Typing SVG" /></a>
+
+<p align=center
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=R3CRU1TZ.&color=ff0000)
 
 <p align=center
@@ -16,7 +20,7 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>𐔌⠀ ⠀⠀⠀⠀⠀𐂯 ,, I'm sorry, about everything i have done to the people who i have hurt without knowing so myself. this is ur chance to hurt me back. 𐦯◞⠀ ⠀⠀✦.⠀⠀⠀ 𓏵  ..<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>
+<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>within our lies, there is good.<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/575/575270ehu3guptig.gif" width=15 height=15 border=0></a>
 
 <p align=center
 
