@@ -1,4 +1,4 @@
-<p align=center
+death of peace of mind<p align=center
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Monospace+text&duration=1000&color=CC0000&center=true&vCenter=true&width=435&lines=NICE%2C+NICE;SO+ARE+YOU+A;VIRGIN%3F;NICE%2C+NICE;WHAT+COLOR+ARE+YOUR+PANTIES%3F!" alt="Typing SVG" /></a>
 
