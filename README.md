@@ -99,3 +99,8 @@ death of peace of mind<p align=center
 
 𓊆 want a _360 gif![o](WlLTWDN.gif)_ click this ! -> [here](https://www.3dgifmaker.com/360Spin) 𓊇
 
+<p align=center
+
+![0](Untitled52_20250907110430.png)
+
+
