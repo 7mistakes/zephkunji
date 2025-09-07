@@ -26,7 +26,7 @@
 
 <p align=center
 
-𓈒ㅤwillow　◞⠀⠀sage　∔  ![spar](rFisINf.png)
+![*](2vuX1yq.gif) 𓈒ㅤwillow　◞⠀⠀sage　∔  ![spar](rFisINf.png)
 
 <p align=center
 
@@ -34,7 +34,7 @@
 
 <p align=center
 
-━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ　　⏝ི
+━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ ![9](n8ysuCQ.gif)　　⏝ི
 
 death of peace of mind<p align=center
 
