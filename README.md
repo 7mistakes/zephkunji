@@ -26,15 +26,15 @@
 
 <p align=center
 
-𓈒ㅤwillow⠀　◞⠀⠀sage01　∔
+𓈒ㅤwillow　◞⠀⠀sage　∔  ![spar](rFisINf.png)
 
 <p align=center
 
-♱　﹒　　they  ![o](KPrG9RD.gif)　 them　 　 𓎟𓎟
+♱　﹒　　they         ![o](KPrG9RD.gif)　 them　 　 𓎟𓎟
 
 <p align=center
 
-━━╋━　main　⠀౨ৎ　⠀minor　　⏝ི
+━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ　　⏝ི
 
 death of peace of mind<p align=center
 
