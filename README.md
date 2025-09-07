@@ -26,11 +26,15 @@
 
 <p align=center
 
-ｗｉｌｌｏｗ   /   ｓａｇｅ  ![o](KPrG9RD.gif)     
+𓈒ㅤwillow⠀　◞⠀⠀sage01　∔
 
 <p align=center
 
-they - them   
+♱　﹒　　they  ![o](KPrG9RD.gif)　 them　 　 𓎟𓎟
+
+<p align=center
+
+━━╋━　main　⠀౨ৎ　⠀minor　　⏝ི
 
 death of peace of mind<p align=center
 
